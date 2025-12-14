@@ -68,7 +68,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: mandalrajeshsulendra@gmail.com  
-- 💼 LinkedIn: https://linkedin.com/in/your-profile  
+- 💼 LinkedIn: (https://www.linkedin.com/in/mandal-rajesh-sulendra/) 
 - 🌐 Portfolio: Coming Soon  
 
 ---
