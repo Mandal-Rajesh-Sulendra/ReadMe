@@ -1,5 +1,5 @@
 # 👋 Hi, I'm Mandal Rajesh
-🎓 *Computer Science Student | AIML Enthusiast | Data & Web Developer*  
+🎓 *Computer Science Student(2nd Year )| AIML Enthusiast* 
 💡 Passionate about building practical solutions using *Data Analytics, Machine Learning, and Web Technologies*
 
 ---
